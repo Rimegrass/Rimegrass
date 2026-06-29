@@ -13,6 +13,6 @@
 my pony was posted, im not surprised i kinda wanted a screenie ^_+ and i got one.
 
 [the screenie](https://pin.it/1vxgZIbEc) its on pin.
-i am that cool yk
+i am that cool yk, its the pink pony btw *o<
 
 </div>
